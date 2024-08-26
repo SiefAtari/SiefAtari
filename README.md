@@ -6,6 +6,7 @@
 📫 How to reach me:
 - LinkedIn: https://www.linkedin.com/in/siefatari/
 - Email: saifatari2000@gmail.com
+
 🏆 Achievements:
   🏅 One of the Provost Leadership Fellows in the doctoral category.
   🎖️ Recipient of the Global Leaders of Tomorrow Full Scholarship at the University of Bridgeport.
