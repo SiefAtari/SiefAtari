@@ -3,14 +3,14 @@
 👀 I’m interested in Machine Learning, Optimization, and Stochastic Systems.  
 🌱 I’m currently working on Graph Neural Networks.  
 💙❤️ Forever chanting "Visca Barça!" – die-hard Barcelona supporter.  
-📫 How to reach me:
-- LinkedIn: https://www.linkedin.com/in/siefatari/
-- Email: saifatari2000@gmail.com
-
 🏆 Achievements:
   🏅 One of the Provost Leadership Fellows in the doctoral category.
   🎖️ Recipient of the Global Leaders of Tomorrow Full Scholarship at the University of Bridgeport.
   🏅 Awarded the President’s Award at the University of Bridgeport 2022 Student Leadership Awards.
+📫 How to reach me:
+- LinkedIn: https://www.linkedin.com/in/siefatari/
+- Email: saifatari2000@gmail.com
+
 
 
 
